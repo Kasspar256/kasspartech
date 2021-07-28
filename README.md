@@ -1,0 +1,2 @@
+# kasspartech
+Follow ur mindset
